@@ -31,4 +31,4 @@ Thank you for your time and consideration. I look forward to hearing from you so
 Best regards,
 
         Sameer Ajay Harankhedkar            📍    Amravati, Maharashtra
-📞        +91 7020064547                   📭    sameerah2710@gmail.com
+📞        +91 7020064547                   📭   harankhedkarsameer@gmail.com
